@@ -8,5 +8,5 @@ min-su <ins>ou</ins> myung-gi<br>
  ﹒park min-su fictkin<br>
 they <strong>he</strong> pref . in<strong>f</strong>p-t<br>
 w2i ˳ ⠀cuddlecomf.<br>
-26 . 6 　minor
+26 . 6 　ˊˎ- minor
 </p>
