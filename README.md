@@ -5,7 +5,7 @@
 
 <p align="center">
 min-su <ins>ou</ins> kiriko<br>
-park min-su ﹒fictkin<br>
 they <strong>he</strong> pref . in<strong>f</strong>p-t<br>
+park min-su fictkin<br>
 w2i ˳ ⠀cuddlecomf.<br>
 </p>
