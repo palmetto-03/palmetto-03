@@ -6,6 +6,6 @@
 <p align="center">
 박민수 <strong>ノ</strong> min-su . ¹²⁵<br>
 fictionkin - "doubles" dni<br>
-huge cuddlcomf + w2i pref
-number one shypills fan
+huge cuddlcomf + w2i pref<br>
+number one shypills fan<br>
 </p>
