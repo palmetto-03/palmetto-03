@@ -4,8 +4,7 @@
 
 
 <p align="center">
-min-su <ins>ou</ins> kiriko<br>
-they <strong>he</strong> pref . in<strong>f</strong>p-t<br>
-park min-su fictkin<br>
-w2i ˳ ⠀cuddlecomf.<br>
+박민수 <strong>ノ</strong> min-su . ¹²⁵<br>
+fictionkin - "doubles" dni<br>
+huge cuddlcomf + w2i pref
 </p>
