@@ -4,7 +4,7 @@
  
  
 <p align="center">
-min-su . ¹²⁵<br>
+min-su ou andrew ¹²⁵<br>
 </p>
 
 <p align="center">
