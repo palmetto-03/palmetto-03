@@ -4,6 +4,6 @@
  
  
 <p align="center">
-andrew / flick<br>
-. co / palmetto-03<br>
+andrew / zero<br>
+c+h ok; w2i pref<br>
 </p>
