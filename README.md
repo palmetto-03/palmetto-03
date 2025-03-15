@@ -5,6 +5,6 @@
  
 <p align="center">
 andrew / zero<br>
-c+h ok; w2i pref<br>
+c+h ok; w2i preference<br>
 PLEASE read my rentry<br>
 </p>
